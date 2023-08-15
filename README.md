@@ -12,4 +12,7 @@ Meu nome é Rhuan_CWB
 
 - instagram: @rhuan_cwb
 
-- 
+![](https://github.com/rhuancwb/rhuancwb/assets/140729469/a01fe96a-2aa6-48b4-8f15-e8ef2449d02c)
+
+  
+
